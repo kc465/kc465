@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kc465
+- 👋 Hi, I’m @kartikeya
 - 👀 I’m interested in logo designing
 - 🌱 I’m currently learning video editing 
 - 💞️ I’m looking to collaborate on youtube  
